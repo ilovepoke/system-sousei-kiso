@@ -1,0 +1,3 @@
+minoaka
+acaii
+pineapple
